@@ -1,2 +1,2 @@
 # BEE_TermPaper
-Entrepreneurship Term Paper 
+Entrepreneurship Term Paper on **Globalization and its impact on small scale industries.**
